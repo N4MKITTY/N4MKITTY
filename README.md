@@ -1,5 +1,6 @@
-![namgyu-nam-gyu](https://github.com/user-attachments/assets/e544bcff-1246-4dd9-b273-d53724dbe897)
+<img width="511" height="488" alt="a74a118f5f981b11aadd79fc091d18b3-removebg-preview" src="https://github.com/user-attachments/assets/e1f6bae9-56e2-422f-aea9-365542c9f470" />
 
+(⁠ㆁ⁠ω⁠ㆁ⁠)
 
 
 <!--
