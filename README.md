@@ -1,4 +1,5 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝜗ৎㅤㅤ 
+ㅤㅤㅤㅤㅤㅤ ![](https://komarev.com/ghpvc/?username=N4MKITTY&color=654321&label=cool-people)
+ㅤㅤ 
 ![c29a3642aa147c314dabaea81189978a](https://github.com/user-attachments/assets/8feae672-cb2e-4d92-bf30-d15598dd3a01)
 
 
