@@ -1,8 +1,9 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![](https://komarev.com/ghpvc/?username=N4MKITTY&color=654321&label=hyuna+love)
+
 
 ㅤㅤ 
-![c29a3642aa147c314dabaea81189978a](https://github.com/user-attachments/assets/8feae672-cb2e-4d92-bf30-d15598dd3a01)
+![5cb4056c4f025a2bcb7d7b560f60e4b0](https://github.com/user-attachments/assets/061ba185-2c2d-4c62-920b-f48d8ff8e6a2)
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![](https://komarev.com/ghpvc/?username=N4MKITTY&color=lightgrey&label=thangyu's)ㅤㅤㅤㅤㅤㅤㅤㅤ ⊹ ࣪ ˖
 
 <!--
 **N4MKITTY/N4MKITTY** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
