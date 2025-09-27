@@ -1,7 +1,8 @@
 
 
 ㅤㅤ 
-![megumi](https://github.com/user-attachments/assets/156473d8-ebc3-49f1-a043-6ceb1a4fec32)
+![megumi-transparent-megumi](https://github.com/user-attachments/assets/5d4722e0-3b04-4cd5-854a-2cfda5364609)
+
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![](https://komarev.com/ghpvc/?username=N4MKITTY&color=lightgrey&label=thangyu's)ㅤㅤㅤㅤㅤㅤㅤㅤ ⊹ ࣪ ˖
