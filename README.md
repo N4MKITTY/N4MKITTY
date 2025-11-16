@@ -1,11 +1,11 @@
 
 
 ㅤㅤ 
-![megumi-transparent-megumi](https://github.com/user-attachments/assets/5d4722e0-3b04-4cd5-854a-2cfda5364609)
+![91dab12685bd140ea117a1aec51dbf70](https://github.com/user-attachments/assets/873e40d9-5ebd-4255-b5af-c4cfb5126ed0)
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![](https://komarev.com/ghpvc/?username=N4MKITTY&color=lightgrey&label=thangyu's)ㅤㅤㅤㅤㅤㅤㅤㅤ ⊹ ࣪ ˖
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![](https://komarev.com/ghpvc/?username=N4MKITTY&color=lightgrey&label=thangyu's)ㅤㅤㅤㅤㅤㅤㅤㅤ
 
 <!--
 **N4MKITTY/N4MKITTY** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
